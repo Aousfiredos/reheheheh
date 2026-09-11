@@ -1,2 +1,2 @@
 # blooket
-hack for 1 million coins
+hack for 1 million coinsw
